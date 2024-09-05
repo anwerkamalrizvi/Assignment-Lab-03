@@ -1,4 +1,4 @@
 # Assignments of Lab 03
-> Asalaam o Alaikum Sir
-> My roll no: **24k-0033**
+My roll no: **24k-0033**
 Name: *Syed Anwer Kamal*
+> Asalaam o Alaikum Sir
